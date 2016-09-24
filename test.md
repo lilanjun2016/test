@@ -1,2 +1,2 @@
 I love shuxue
-I lobe gg
+I lobe dog
