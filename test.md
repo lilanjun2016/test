@@ -1,2 +1,2 @@
 I love Computer!
-I love PE!
+I love Arts!
